@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HTA9001
+- 👀 I’m interested in play game
+- 🌱 I’m currently learning AI
